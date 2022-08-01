@@ -1,9 +1,9 @@
-- Olá eu sou o Cross
+- Olá eu sou Chara
 - Jogo ROBLOX quer jogar comigo?: https://web.roblox.com/users/1322110235/profile
 - Tenho o Spotify : https://open.spotify.com/user/3147e7dqnarlkvqk7qg5kkeharly
 - EU TAMBÉM TENHO TWITCH! :D : https://www.twitch.tv/bi3ldiferenciado
 - Sou fã de undertale, recomendo jogar...
 - Redes sociais mais usadas: Spotify, Roblox, youtube e Twitch
-- Youtube fã: yTowak e Mister0y
+- Youtube fã: TommyInnit
 - You! stey determined
-- Usuário do Discordia Cross#2912
+- Usuário do Discordia Chara#7652
